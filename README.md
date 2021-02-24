@@ -1,2 +1,2 @@
 # asd
-YENİ YAZI
+YENİ YAZI 222222
