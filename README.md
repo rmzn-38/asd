@@ -1,0 +1,2 @@
+# asd
+YENİ YAZI
